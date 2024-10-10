@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Az-eddine
-- 👀 I’m interested in 
+- 👀 I’m interested in IT technologies
 - 🌱 I’m currently learning Cloud services 
 - 🧑🏻‍💻 I'm currently working AS IT support
 - 📫 How to reach me @azddine.afifi0@gmail.com
